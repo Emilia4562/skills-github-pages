@@ -1,4 +1,3 @@
----
-BEST-HORSES-EVER!
+God's creatons!
 
 
